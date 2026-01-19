@@ -31,4 +31,4 @@ I'm an aspiring **Data Analyst** with hands-on experience in **SQL** and **Power
 ---
 
 📫 **Let’s connect:**  
-- LinkedIn: *(add link here)*
+- LinkedIn: *linkedin.com/in/yeshuri-senanayeka-944a03255*
